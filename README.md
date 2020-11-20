@@ -1,1 +1,0 @@
-Personal web for Rus
